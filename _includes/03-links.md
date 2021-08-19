@@ -1,1 +1,1 @@
-[Link to My Github](https://github.com/whiteellie)
+[Link to GitHub Social Media](https://github.com/whiteellie)
